@@ -4,5 +4,4 @@ Whats up y’all. I am from Kansas and I am a designer. I don’t know what to w
 
 I love the color turquoise or mint. I also love to travel.
 
-
-I work at IBM and I already have a boyfriend so sorry for this fake Tinder file.
+I work at IBM and I already have a boyfriend named Dat so sorry for this fake Tindr file.
